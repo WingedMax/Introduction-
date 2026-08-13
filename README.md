@@ -63,8 +63,10 @@
 
 -> loli/shota
 
--> basic DNI criteria
+-> basic DNI criteria 
 
--> anti-yumeship
+-> proshipper/darkshipper
 
 -> homophobic/transphobic
+
+-> under 11
