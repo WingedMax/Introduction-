@@ -48,17 +48,20 @@
 
 # 𝑴𝒀 𝑭𝑹𝑰𝑬𝑵𝑫𝑺 <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/ce577506-d79f-49e0-8f06-c035f9793377" />
 
-♡ Simon (husband aww (๑•ᴗ•๑)♡)
 
-★ Oliver
+♡ 𝑺𝒊𝒎𝒐𝒏 (𝒉𝒖𝒔𝒃𝒂𝒏𝒅)
+⋆. 𐙚 ˚
 
-★ Leadia
+★ 𝑶𝒍𝒊𝒗𝒆𝒓
 
-★ Ella
+★ 𝑳𝒆𝒂𝒅𝒊𝒂
 
-★ Scarlett 
+★ 𝑬𝒍𝒍𝒂
 
-If you weren't mentioned, don't worry! I lov all my friends equally <3
+★ 𝑺𝒄𝒂𝒓𝒍𝒆𝒕𝒕 
 
+𝑰𝒇 𝒚𝒐𝒖 𝒘𝒆𝒓𝒆𝒏'𝒕 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒆𝒅, 𝒅𝒐𝒏'𝒕 𝒘𝒐𝒓𝒓𝒚! 𝑰 𝒍𝒐𝒗 𝒂𝒍𝒍 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒆𝒒𝒖𝒂𝒍𝒍𝒚 <𝟑
+
+(The rest will be added later whoops...) 
 
 
